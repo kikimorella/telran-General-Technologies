@@ -1,0 +1,1 @@
+# telran-General-Technologies
